@@ -4,41 +4,25 @@ title: "The dragon will fly"
 date: 2024-01-31
 ---
 
-It came to him, 
-in his hour of need.
-Protect and defend,
-from his tower of grief.
+It came to him, in his hour of need.
+Protect and defend,from his tower of grief.
 
-Let it be known,
-Far and wide.
-Let it be known,
-Our dragon flies.
+Let it be known, far and wide.
+Let it be known, our dragon flies.
 
-He chose his fate,
-To rid of hate.
-Rider of Hope,
-Never too late.
+He chose his fate, to rid of hate.
+Rider of Hope, never too late.
 
-Those promised lands,
-Of forgotten times.
-He sought the truth ,
-To see the good.
+Those promised lands, of forgotten times.
+He sought the truth , to see the good.
 
-This timeless war,
-It goes on and on.
-What we believe ,
-He will conceive 
+This timeless war, it goes on and on.
+What we believe, he will conceive.
 
-Let it be known
-The dragon rides
-With cosmic winds
-To end the fight.  
+Let it be known, the dragon rides.
+With cosmic winds, to end the fight.  
 
-Let it be known,
-Our dragon flies
-To turn the tide ,
-Of this endless war.
+Let it be known, our dragon flies.
+To turn the tide, of this endless war.
 
-Oh let it be known,
-That the dragon flies …
-
+Oh let it be known, that the dragon flies…
