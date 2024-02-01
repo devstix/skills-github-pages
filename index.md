@@ -1,3 +1,5 @@
+### greetings traveller! 👋
+
 attempt to get intentional about writing
 
 about me:
