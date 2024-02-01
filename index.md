@@ -1,6 +1,4 @@
-### greetings traveller! 👋
-
-need to get intentional about writing
+attempt to get intentional about writing
 
 about me:
 
