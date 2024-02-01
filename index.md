@@ -1,4 +1,4 @@
-### greetings traveller! 👋
+greetings traveller! 👋
 
 attempt to get intentional about writing
 
